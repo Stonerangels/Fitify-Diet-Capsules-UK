@@ -231,7 +231,5 @@
 <p><strong><span style="font-size: medium;"><strong>FB@:- <a href="https://www.facebook.com/groups/fitifyweightlosscapsuleuk">https://www.facebook.com/groups/fitifyweightlosscapsuleuk</a></strong></span></strong></p>
 <p><strong><span style="font-size: medium;"><strong>FB@:- <a href="https://www.facebook.com/groups/fitifyweightlossuk">https://www.facebook.com/groups/fitifyweightlossuk</a></strong></span></strong></p>
 <p><strong><span style="font-size: medium;"><strong>FB@:- <a href="https://www.facebook.com/groups/fitifydietcapsuleuk/">https://www.facebook.com/groups/fitifydietcapsuleuk/</a></strong></span></strong></p>
-<p>&nbsp;</p>
 </div>
 </div>
-<p>&nbsp;</p>
